@@ -1,1 +1,0 @@
-# Jakub_Kordowski_EgzaminPO
